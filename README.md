@@ -1,5 +1,5 @@
 # 💫 About Me:
-International level programmer with mediocre skills<br>for business 📩 al.farabi.s@zohomail.com
+International level programmer with mediocre skills<br>for business 📩 gua@alfarabi.my.id
 
 
 ## 🌐 Socials:
